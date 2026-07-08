@@ -217,6 +217,8 @@ Bachelor of Technology
 Artificial Intelligence & Machine Learning
 
 ---
+## youtude link
+[watch here](https://youtu.be/x6kglprRWUs)
 
 # 📄 Academic Note
 
